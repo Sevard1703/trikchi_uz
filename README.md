@@ -1,0 +1,1 @@
+# trikchi_uz
